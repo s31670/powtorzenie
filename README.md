@@ -1,1 +1,2 @@
-# powtorzenie
+Wojciech Duchiewicz
+s31670
